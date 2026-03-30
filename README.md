@@ -1,0 +1,1 @@
+# Forex-and-Degree-Analysis-2025-26
